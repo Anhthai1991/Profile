@@ -23,7 +23,7 @@ Results-driven logistics and supply chain professional with over **10 years** of
 
 ## Career Highlights
 
-| 🗓️ 10+ Years | 👥 20+ Headcount | 💰 $50K Saved/Year | 📦 25% Inventory Reduction | 🚚 20% Delivery Uplift |
+| 🗓️ 12+ Years | 👥 100+ Headcount | 💰 $50K Saved/Year | 📦 25% Inventory Reduction | 🚚 20% Delivery Uplift |
 |:---:|:---:|:---:|:---:|:---:|
 | Last-mile · DC · SC | Field teams managed | Annual transport savings | Inventory value cut | Last-mile DIFOT improvement |
 
@@ -40,7 +40,7 @@ Results-driven logistics and supply chain professional with over **10 years** of
 ## Professional Experience
 
 ### Warehouse Manager &nbsp;·&nbsp; Tessellation Binh Duong (Esquel Group)
-**Apr 2025 – Present** &nbsp;·&nbsp; *Reporting to South Logistics Manager*
+**Apr 2026 – Present** &nbsp;·&nbsp; *Reporting to South Logistics Manager*
 
 - Managing end-to-end warehouse operations for a large-scale apparel distribution center within the Esquel Group network.
 - Overseeing inbound, storage, picking, and outbound flows to ensure accuracy and throughput targets are consistently met.
